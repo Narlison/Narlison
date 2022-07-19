@@ -1,0 +1,6 @@
+- 👋 Oiee, meu nome é narlison
+- 👀 Estou interessado em ajudar a construir projetos, e em aprender mais
+- 📚 Iniciando os estudos em programação
+- 🐈 Eu gosto de gatos;-;
+- 📚 Adoro ler
+- 🇺🇸 A meta é fazer intercâmbio
